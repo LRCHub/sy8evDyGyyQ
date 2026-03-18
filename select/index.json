@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "愚か者が語る夢（feat. Sleep1st）",
+  "base_artist": "HOYO-MiX",
+  "createdAt": "2026-03-18T07:44:31.551481Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "愚か者が語る夢",
+      "artist": "HOYO-MiX, Sleep1st",
+      "has_synced": false,
+      "path": "select/pl_01_愚か者が語る夢_HOYO-MiX,_Sleep1st.txt"
+    }
+  ]
+}
