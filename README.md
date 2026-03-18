@@ -1,0 +1,62 @@
+# HOYO-MiX – 愚か者が語る夢（feat. Sleep1st）
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+She got candy in her pocket, poppin' on repeat
+Step so sweet, honey drippin' on the beat
+Flip a lollipop, skip a hop, heart thump
+Bubblegum bounce, every rhyme got a jump
+Pop, pop, pop, sugar on top
+Pop, pop, never gon' stop
+Pop, pop, watch her drop
+Candy-coated, yeah, she pop, pop, pop
+Got the idea in her mind, yeah, sparkle when she
+spin
+Every word she spit, it's a sugar-coated win
+Cherry lips, drip, cherry sip
+Deadly wish, it's time to drip
+(Drip, drip, drip, drip, drip, drip, drip, drip)
+(Drip, drip, drip, drip, drip) Deadly wish, it's
+time to drip
+Deadly wish, it's time to drip
+Pop, pop, steppin' on top
+Pop, pop, never gon' stop
+Pop, pop, watch hеr drop
+Candy-coated, yeah, she pop, pop, pop
+Adrеnaline poppin', fix her palm
+Step into the chamber to disarm
+Weapon of the mastery, to erupt
+Tickle with the diamond, ready to bust
+Them clocks tickin'
+Ready to dig in
+Time for payin'
+Stepped to the scene, she rock 'em up
+Tick, tick, time will tick
+Slip, slip, finger slip
+Clip, clip, final grip
+Deadly wish, let's make it drip
+(Drip, drip, drip, drip, drip, drip, drip, drip)
+(Drip, drip, drip, drip, drip) Deadly wish, it's
+time to drip
+If you played me
+Deadly wish, it's time to drip
+Could you save me?
+(Deadly wish, it's time to—)
+Pop, pop, sugar on top
+Pop, pop, never gon' stop
+Pop, pop, watch her drop
+Little bit of luck, she pop, pop, pop
+Pop, pop, sugar on top
+Pop, pop, never gon' stop
+Pop, pop, watch her drop
+Future callin', yeah, she pop, pop, pop
+Pop, pop, sugar on top
+Pop, pop, never gon' stop
+Pop, pop, watch her drop
+Wicked wonder, yeah, she pop, pop, pop
+Pop, pop, sugar on top
+Pop, pop, never gon' stop
+Pop, pop, watch her drop
+Candy-coated, yeah, she pop, pop, pop (Pew)
+```
